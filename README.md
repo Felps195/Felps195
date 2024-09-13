@@ -13,4 +13,4 @@ Meu nome é felipe fernandes
 Mestrestarsfefe@gmail.com
 
 ![](https://media.tenor.com/Sk3ybYkV5AEAAAAM/sukuna-vs-gojo.gif)
-https://tenor.com/pt-BR/view/hakari-domain-expansion-domain-expansion-anime-gif-11188887952426718576
+![]//https://tenor.com/pt-BR/view/hakari-domain-expansion-domain-expansion-anime-gif-11188887952426718576
