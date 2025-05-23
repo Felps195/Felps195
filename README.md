@@ -17,5 +17,6 @@ Mestrestarsfefe@gmail.com
 ![](https://media.tenor.com/Sk3ybYkV5AEAAAAM/sukuna-vs-gojo.gif) 
 
 
-![](https://media1.tenor.com/m/EjtSgUyxKRMAAAAd/luffy-vs-lucci-egghead.gif) ![](https://media1.tenor.com/m/w3E87cu_vNQAAAAd/egghead-luffy-vs-lucci.gif)
+![](https://media1.tenor.com/m/EjtSgUyxKRMAAAAd/luffy-vs-lucci-egghead.gif) ![](https://media1.tenor.com/m/r94iUcrS7hkAAAAd/luffy-luffy-gear-5.gif)
+
 
