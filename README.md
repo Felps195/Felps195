@@ -14,7 +14,4 @@ Mestrestarsfefe@gmail.com
 
 ![](https://media.tenor.com/Sk3ybYkV5AEAAAAM/sukuna-vs-gojo.gif)
 
-
-
-
-![](https://tenor.com/pt-BR/view/hakari-domain-expansion-domain-expansion-anime-gif-11188887952426718576)
+![](https://media1.tenor.com/m/pLj1HZPbubsAAAAC/luffy-gear-5.gif).
