@@ -12,5 +12,8 @@ Meu nome é Felipe Fernandes
 
 Mestrestarsfefe@gmail.com
 
-![](https://media.tenor.com/Sk3ybYkV5AEAAAAM/sukuna-vs-gojo.gif) ![](https://media1.tenor.com/m/EjtSgUyxKRMAAAAd/luffy-vs-lucci-egghead.gif)
+![](https://media.tenor.com/Sk3ybYkV5AEAAAAM/sukuna-vs-gojo.gif) 
+
+
+![](https://media1.tenor.com/m/EjtSgUyxKRMAAAAd/luffy-vs-lucci-egghead.gif)
 
