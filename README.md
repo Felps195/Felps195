@@ -1,6 +1,6 @@
 ## Boas vindas ao meu perfil
 
-Meu nome é felipe fernandes
+Meu nome é Felipe Fernandes
 
 -Estou estunando na Alura
 
@@ -8,7 +8,7 @@ Meu nome é felipe fernandes
 
 -Utilizo este espaço para minha organização e compartilhamento dos meus projetos
 
-## voce pode entrar em contato cmonigo 
+## você pode entrar em contato comigo 
 
 Mestrestarsfefe@gmail.com
 
